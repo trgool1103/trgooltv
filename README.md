@@ -3,6 +3,7 @@
 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 
 📢 **Telegram Kanalımız:** 👉 [Katıl ve Maç Linklerini Kaçırma!](https://t.me/trgool_turkiye)
+
 📺 **Maçı İzlemek İçin**: [MAÇ SİTESİ İÇİN TIKLAYIN](https://link24.site/TrGooL)
 
 [![TR-GOOL](https://github.com/user-attachments/assets/e3a75848-4e9d-4041-8fa2-60616205b475)](https://link24.site/TrGooL)
