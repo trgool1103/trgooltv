@@ -1,4 +1,4 @@
-### ⚽ **TrGooL** 🆚 **Atletico Madrid - Real Madrid Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆**
+### ⚽ **TrGooL** 🆚 *Galatasaray & Antalyaspor Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆**
 
 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 
@@ -8,11 +8,11 @@
 
 [![TR-GOOL](https://github.com/user-attachments/assets/e3a75848-4e9d-4041-8fa2-60616205b475)](https://link24.site/TrGooL)
 
-**TrGooL** ile **Atletico Madrid - Real Madrid** maçını canlı izleyin! La Liga'nın en heyecanlı derbisini, **HD kalitesinde** ve **kesintisiz yayın** ile izleme fırsatını kaçırmayın. Hemen **TrGooL**'ü tercih edin!
+**TrGooL** ile **Galatasaray & Antalyaspor** maçını canlı izleyin! La Liga'nın en heyecanlı derbisini, **HD kalitesinde** ve **kesintisiz yayın** ile izleme fırsatını kaçırmayın. Hemen **TrGooL**'ü tercih edin!
 
-🎯 **Atletico Madrid - Real Madrid Canlı Yayın!** 🏟️📡
+🎯 **Galatasaray & Antalyaspor** 🏟️📡
 
-📌 **Atletico Madrid - Real Madrid** maçını **HD kalitesinde** izleyin ve **kesintisiz yayın** ile futbol heyecanını yaşayın!
+📌 **Galatasaray & Antalyaspor** maçını **HD kalitesinde** izleyin ve **kesintisiz yayın** ile futbol heyecanını yaşayın!
 
 ✅ **Full HD ve Sorunsuz Yayın** 🎥  
 ✅ **La Liga Maçları Canlı İzleme İmkanı** ⚽  
