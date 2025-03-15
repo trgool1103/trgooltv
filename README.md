@@ -1,4 +1,4 @@
-### ⚽ **TrGooL** 🆚 *Galatasaray & Antalyaspor Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆**
+### ⚽ **TrGooL** 🆚 *Konyaspor & Beşiktaş Canlı Maç İzle | HD Yayın | Kesintisiz Yayın 🎥🏆**
 
 📲 **Bizi Sosyal Medyada Takip Edin!** 🔗
 
@@ -8,11 +8,11 @@
 
 [![TR-GOOL](https://github.com/user-attachments/assets/e3a75848-4e9d-4041-8fa2-60616205b475)](https://link24.site/TrGooL)
 
-**TrGooL** ile **Galatasaray & Antalyaspor** maçını canlı izleyin! La Liga'nın en heyecanlı derbisini, **HD kalitesinde** ve **kesintisiz yayın** ile izleme fırsatını kaçırmayın. Hemen **TrGooL**'ü tercih edin!
+**TrGooL** ile **Konyaspor & Beşiktaş** maçını canlı izleyin! La Liga'nın en heyecanlı derbisini, **HD kalitesinde** ve **kesintisiz yayın** ile izleme fırsatını kaçırmayın. Hemen **TrGooL**'ü tercih edin!
 
-🎯 **Galatasaray & Antalyaspor** 🏟️📡
+🎯 **Konyaspor & Beşiktaş** 🏟️📡
 
-📌 **Galatasaray & Antalyaspor** maçını **HD kalitesinde** izleyin ve **kesintisiz yayın** ile futbol heyecanını yaşayın!
+📌 **Konyaspor & Beşiktaş** maçını **HD kalitesinde** izleyin ve **kesintisiz yayın** ile futbol heyecanını yaşayın!
 
 ✅ **Full HD ve Sorunsuz Yayın** 🎥  
 ✅ **La Liga Maçları Canlı İzleme İmkanı** ⚽  
@@ -33,6 +33,6 @@
 🏅 **La Liga ve diğer liglerden canlı maçları kaçırmamak için TrGooL'u takip edin!**
 
 📢 **Maç öncesinde güncellenen yayın linkleriyle anında bağlanın!**  
-📺 **Atletico Madrid - Real Madrid maçını canlı izlemek için hemen ziyaret edin**: 👉 [MAÇ SİTESİ İÇİN TIKLAYIN](https://link24.site/TrGooL)
+📺 **Konyaspor & Beşiktaş maçını canlı izlemek için hemen ziyaret edin**: 👉 [MAÇ SİTESİ İÇİN TIKLAYIN](https://link24.site/TrGooL)
 
 🌟 **HD kalitesinde, donmadan maç izlemek için TrGooL'a bağlanın!** 🎉
